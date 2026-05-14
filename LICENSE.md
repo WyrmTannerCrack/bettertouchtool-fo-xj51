@@ -1,4 +1,4 @@
-
+Get the ultimate BetterTouchTool for macOS workflow with BetterTouchTool for macOS smart Workflow - privacy-protection and file-encryption. Featuring privacy-protection and
 
 
 
